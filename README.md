@@ -22,7 +22,7 @@
 
 ### 官网
 
-[速界机场](https://trevona.speed-world.cc/#/register?code=lXxzI0h0) 和它类似套餐也差不多的[edgenovayun](https://lunvexa.edgenovayun.cc/#/register?code=ZADnwLvf)也不错。
+[速界机场](https://trevona.speed-world.cc/#/register?code=lXxzI0h0) 和它类似套餐也差不多的[edgenovayun](https://edgenova.cc/#/register?code=ZADnwLvf)也不错。
 
 ### 特点
 
@@ -179,7 +179,7 @@
 
 ### 官网
 
-[红杏云](https://hongxingyun.net/web/#/login?code=QcJ4qfu0)
+[红杏云](https://hxlove25s.cc/web/#/login?code=QcJ4qfu0)
 
 ### 特点
 
